@@ -1,0 +1,1 @@
+# ad-Margin-of-Safthe-Thoughtful-Investor-By-Seth-A.-Klar
